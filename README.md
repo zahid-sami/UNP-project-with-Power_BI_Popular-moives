@@ -12,4 +12,4 @@ PBIX file link: https://drive.google.com/file/d/1CvGi3G30DIh9DYjNqrnRJatHU4GakWV
 
 PDF link: https://drive.google.com/file/d/1W3VjixfADec3GuT9P5IPnaD6mAZ8OgcY/view?usp=sharing
 
-PPT Link:- https://www.canva.com/design/DAGDyBRjUUY/9TvC3FF-vmZ0VBcOUDl0hA/edit?utm_content=DAGDyBRjUUY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+PPT Link:- https://drive.google.com/file/d/1qoSR4sZt5Ooh7jYR9Jeab2zFCAccm_fp/view?usp=sharing
