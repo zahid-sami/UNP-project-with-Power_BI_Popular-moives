@@ -11,3 +11,5 @@ KEY HIGHLIGHTS:
 PBIX file link: https://drive.google.com/file/d/1CvGi3G30DIh9DYjNqrnRJatHU4GakWV2/view?usp=sharing
 
 PDF link: https://drive.google.com/file/d/1W3VjixfADec3GuT9P5IPnaD6mAZ8OgcY/view?usp=sharing
+
+PPT Link:- https://www.canva.com/design/DAGDyBRjUUY/9TvC3FF-vmZ0VBcOUDl0hA/edit?utm_content=DAGDyBRjUUY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
