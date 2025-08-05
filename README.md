@@ -1,3 +1,6 @@
+![download](https://github.com/user-attachments/assets/e7c96a9e-c65f-444c-a7d2-75bf7afd3976)
+
+
 # UNP-project-with-Power_BI_Popular-moives
 
 Completed this project by using Power BI as a part of my internship process with the United Network of Professionals.
