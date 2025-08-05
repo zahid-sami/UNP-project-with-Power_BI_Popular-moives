@@ -4,7 +4,7 @@
 
 
 
-# UNP-project-with-Power_BI_Popular-moives
+# UNP-Project-with-Power_BI_Popular-Moives
 
 Completed this project by using Power BI as a part of my internship process with the United Network of Professionals.
 
