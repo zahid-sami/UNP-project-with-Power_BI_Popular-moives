@@ -1,4 +1,6 @@
-![download](https://github.com/user-attachments/assets/e7c96a9e-c65f-444c-a7d2-75bf7afd3976) ![download](https://github.com/user-attachments/assets/f33dd449-5597-45aa-a9e3-5becd81fdeb1) ![download](https://github.com/user-attachments/assets/9cb2dd43-022e-468c-a9f9-e9151477073f)
+![download](https://github.com/user-attachments/assets/e7c96a9e-c65f-444c-a7d2-75bf7afd3976) ![download](https://github.com/user-attachments/assets/f33dd449-5597-45aa-a9e3-5becd81fdeb1) ![download](https://github.com/user-attachments/assets/9cb2dd43-022e-468c-a9f9-e9151477073f)![download](https://github.com/user-attachments/assets/abcd4906-4f70-4846-a1ec-35f0164a55e2)![download](https://github.com/user-attachments/assets/12cb9635-e3cc-4063-be0f-8b78bf041708)
+
+
 
 
 # UNP-project-with-Power_BI_Popular-moives
